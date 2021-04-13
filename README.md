@@ -1,1 +1,1 @@
-# MasterChef
+Treat yourself to an indulgent, creamy vanilla milkshake with our classic recipe. This easy drink is perfect for customising with indulgent toppings
